@@ -3,6 +3,9 @@
 - Посмотреть другие мои проекты
 
 Связаться со мной:
+
 TG: @ancap-kun (или @ancap_kun, не помню)
+
 VK: @vovanchikputin
+
 email: vovanchikputin@vk.com
